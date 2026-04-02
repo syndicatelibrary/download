@@ -1,2 +1,1 @@
-# sundaezipper.github.io
-https://uncertainprod.github.io/FNF-Spritesheet-XML-generator-Web/
+https://discord.gg/zx6w8awAF7
